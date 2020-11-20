@@ -1,1 +1,1 @@
-![Image of Josh Newman] (https://joshmnewman.files.wordpress.com/2020/07/me5.png)
+![Image of Josh Newman] (https://twitter.com/Josh_M_Newman/photo)
